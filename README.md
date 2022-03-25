@@ -1,6 +1,6 @@
 # PAKE DOANG NGGA FOLLOW, KONTOL LO
 
-[Deskripsi gambar](https://i.ibb.co/MSVwRKH/Screenshot-2022-03-25-09-50-14-018-com-termux.png)
+![Deskripsi gambar](https://i.ibb.co/MSVwRKH/Screenshot-2022-03-25-09-50-14-018-com-termux.png)
 
 😍🌟🌟🌟🌟🌟🌟🌟🌟🌟😍
 
