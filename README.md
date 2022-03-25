@@ -1,5 +1,7 @@
 # PAKE DOANG NGGA FOLLOW, KONTOL LO
 
+https://ibb.co/VxSVF7w
+
 😍🌟🌟🌟🌟🌟🌟🌟🌟🌟😍
 
 # CARA PENGINSTALAN SCRIPTNYAA
