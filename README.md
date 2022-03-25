@@ -1,5 +1,7 @@
 # PAKE DOANG NGGA FOLLOW, KONTOL LO
 
+![IMG_20220322_062341](https://user-images.githubusercontent.com/92802033/159379080-9686671d-b1c3-493b-bfb1-80807d747303.jpg)
+
 😍🌟🌟🌟🌟🌟🌟🌟🌟🌟😍
 
 # CARA PENGINSTALAN SCRIPTNYAA
