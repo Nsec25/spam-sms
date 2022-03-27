@@ -4,9 +4,10 @@
 
 😍🌟🌟🌟🌟🌟🌟🌟🌟🌟😍
 
-# CARA PENGINSTALAN SCRIPTNYAA
+# CARA PENGINSTALAN
  
  Download apk Termuxnya disini🌟
+
 [Klik here](https://f-droid.org/repo/com.termux_117.apk)👈
 ```php
 $ apt update && apt upgrade -y
